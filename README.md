@@ -1,3 +1,2 @@
-si tu lis ça t'as merdé le code
-courage
-
+If you read this you're fucked.
+glhf
